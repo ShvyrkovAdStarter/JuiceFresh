@@ -1,4 +1,4 @@
-# JuiceFresh
+# JuiceFresh Privacy Policy
 
 Privacy Policy
 Adstars built the Fresh Fruits & Cookies Match app as an Ad Supported app. This SERVICE is provided by Adstars at no cost and is intended for use as is.
